@@ -45,6 +45,6 @@
 
 ![Alt Text](https://i2-prod.mirror.co.uk/incoming/article5919163.ece/ALTERNATES/s615b/Three-girls-riding-the-Caterpillar-at-Margates-Dreamland-fun-fair.jpg)
 
-“To succeed, you have to do something and be very bad at it for a while. You have to look bad before you can look really good.”
+**“To succeed, you have to do something and be very bad at it for a while. You have to look bad before you can look really good.”**
 
-Barbara DeAngelis
+*Barbara DeAngelis*
